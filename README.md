@@ -1,4 +1,4 @@
-✿ hello world, i’m ~ʚ rora ɞ~
+✿ hello world, i’m aurora
 
 ✿ i’m interested in web and game development
 
